@@ -9,4 +9,4 @@
 > Çok yakında...
   
 
-[Yusuf Ziya Öner Fen Lisesi](https://antalyafenlisesi.meb.k12.tr)
+[Antalya Yusuf Ziya Öner Fen Lisesi](https://antalyafenlisesi.meb.k12.tr)
